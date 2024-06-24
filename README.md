@@ -7,6 +7,4 @@
 
 > <font size=3> **打包整理后文件 [蓝奏云](https://www.lanzouw.com/i21rf22mnmbi) 密码:3dvb** </font>      
 
-# > 原文：https://blog.c12th.cn/archives/23.html
-
 ---
