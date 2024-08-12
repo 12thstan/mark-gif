@@ -37,4 +37,6 @@ path = 水印字体路径
 
 > <font size=3>**打包整理后文件 [蓝奏云](https://www.lanzouw.com/iMLZD22tin7c) 密码:9g98**</font>
 
+> 原文：https://blog.c12th.cn/archives/35.html
+
 ---
